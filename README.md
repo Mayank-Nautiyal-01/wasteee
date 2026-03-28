@@ -1,2 +1,2 @@
 # wasteee sas
-kuch add kr rha hu
+kuch to h
