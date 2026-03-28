@@ -1,2 +1,2 @@
 # wasteee sas
-kuch to h
+kuch to tha
